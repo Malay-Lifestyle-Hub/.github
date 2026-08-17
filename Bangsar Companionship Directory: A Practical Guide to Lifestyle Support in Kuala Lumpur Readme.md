@@ -59,7 +59,7 @@ As Kuala Lumpur continues to grow as a global city, digital directories have bec
 - Personalization and choice  
 - Structured, policy-compliant online platforms  
 
-A trusted **[Bangsar companionship directory](https://escortgirlmalay.vip/)** fits into this modern framework by offering organized information while maintaining a clear, non-explicit focus on social and lifestyle support.
+A trusted **[Bangsar companionship directory](https://escortgirlmalay.asia/)** fits into this modern framework by offering organized information while maintaining a clear, non-explicit focus on social and lifestyle support.
 
 
 ## What to Look for in a Quality Directory
