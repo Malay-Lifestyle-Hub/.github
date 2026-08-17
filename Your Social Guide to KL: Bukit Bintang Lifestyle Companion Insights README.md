@@ -115,7 +115,7 @@ Always read profiles, check reviews, and communicate clearly.
 
 ### **Verified Platforms for Visitors**
 For social guidance and safe companionship in KL, you may explore reputable platforms such as  
-👉 **[Bukit Bintang Lifestyle Companion](https://escortgirlmalay.vip/)**
+👉 **[Bukit Bintang Lifestyle Companion](https://escortgirlmalay.asia/)**
 
 ---
 
